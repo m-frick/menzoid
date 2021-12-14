@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **ryan@menno.co.za**
 
-- ⚡ Fun fact **I**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
